@@ -1,0 +1,2 @@
+NUTRITION
+Calories: 607kcal | Carbohydrates: 72g | Protein: 7g | Fat: 29g | Saturated Fat: 15g | Cholesterol: 110mg | Sodium: 128mg | Potassium: 129mg | Fiber: 1g | Sugar: 66g | Vitamin A: 995IU | Vitamin C: 0.5mg | Calcium: 70mg | Iron: 0.7mg
